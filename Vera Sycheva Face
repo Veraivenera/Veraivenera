@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Veraivenera
+- 👀 I’m interested to develop in IT
+- 🌱 I’m currently learning someth interesting)
+- 💞️ I’m looking to collaborate with clever persons)
+- 📫 How to reach me ...Telegram @Sycheva_Vera
